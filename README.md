@@ -1,6 +1,6 @@
 Oi, amo meu gato seven🐈
 
-Meu nome e Ana Claudia 
+Tenho 17 anos e estou no terceiro ano do ensino medio. :) 
 
 Gatos 💝
 
